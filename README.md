@@ -2,7 +2,7 @@
 - 👀 I’m interested in making and playing games.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me by aryansingh9010@outlook.com.
+- 📫 How to reach me by aryansingh9010@outlook.com, GamerApex9010@outlook.com.
 - 😄 Pronouns: Having good connections with people around me.
 - ⚡ Fun fact: Likes to talk with someone.
 
